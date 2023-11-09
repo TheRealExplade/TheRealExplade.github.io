@@ -1,7 +1,2 @@
-# About Me
-
-# Experience
-
-# Projects
-
-# Socials
+# I am gay
+## Amogh is top tier gay
